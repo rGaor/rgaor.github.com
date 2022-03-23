@@ -13,5 +13,5 @@ Those are just some of the rules in Badminton
 It is derived directly from poona, and was played by the british army officers stationed in India. Back in 1870, it was brought to England. 
 In 1873, the duke of Beaufort introduced the sport at his country estate, from then it was called Badminton.
 
-** Fun Fact **
+**Fun Fact**
 - Prakash Padukone - the father of Badminton, he was ranked No. 1 in 1890. 
